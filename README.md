@@ -8,11 +8,11 @@
 ⭐ 2. Téléchargez le setup pour installer l'application. Une fois téléchargé, double-cliquez sur le fichier et suivez les instructions.  
 ⭐ 3. Il ne vous reste plus qu'à lancer l'application. 💰  
   
-🔥 Vous pouvez collecter des gains à chaque minute 🔥
+🔥 Vous pouvez collecter des gains à chaque minute 🔥  
   
-
-  
-  
+Cette application vous coûterra 25 USDT et peut en génerer plussieurs centaines, qui irrons dans votre poche. 💰 
+Pour le payment, Veulliez envoyer un message à nairod00@outlook.fr pour avoir l'adresse de payment.
+Une fois le paiement reçus, le mot de passe vous serra envoyé et l'application serra à vous. 🔓  
   
 
 
@@ -25,4 +25,9 @@
 ⭐ 2. Download the setup to install the application. Once downloaded, double-click on the file and follow the instructions.  
 ⭐ 3. All you have to do is launch the application. 💰  
   
-🔥 You can collect winnings every minute 🔥 
+🔥 You can collect winnings every minute 🔥  
+  
+This application will cost you 25 USDT and can generate several hundred, which will go into your pocket. 💰 
+For payment, please send a message to nairod00@outlook.fr to obtain the payment address.
+Once payment has been received, the password will be sent to you and the application will be yours. 🔓  
+  
