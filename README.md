@@ -8,7 +8,7 @@
 ⭐ 2. Téléchargez le setup pour installer l'application. Une fois téléchargé, double-cliquez sur le fichier et suivez les instructions.  
 ⭐ 3. Il ne vous reste plus qu'à lancer l'application. 💰  
   
-🔥 You can collect winnings every minute 🔥 Vous pouvez collecter des gains à chaque minute 🔥
+🔥 Vous pouvez collecter des gains à chaque minute 🔥
   
 
   
