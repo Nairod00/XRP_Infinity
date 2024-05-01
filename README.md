@@ -14,9 +14,9 @@ Cette application vous coûterra 25 USDT et peut en génerer plussieurs centaine
 Pour le payment, Veulliez envoyer un message à nairod00@outlook.fr pour avoir l'adresse de payment.
 Une fois le paiement reçus, le mot de passe vous serra envoyé et l'application serra à vous. 🔓  
   
-
-
-
+  
+  
+  
 [English]
 
 🧙‍♂️ XRP_Infinity is a Windows-only application. It automates the acquisition of gains from the https://faucetearner.org/?r=353654160963 site, so you can get the most out of it.🤑  
