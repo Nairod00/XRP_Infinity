@@ -10,7 +10,7 @@
   
 🔥 Vous pouvez collecter des gains à chaque minute 🔥  
   
-Cette application vous coûterra 25 USDT et peut en génerer plussieurs centaines, qui irrons dans votre poche. 💰   
+Cette application vous coûterra 25 USDT et peut en générer plusieurs centaines, qui irons dans votre poche. 💰   
 Pour le payment, Veulliez envoyer un message à nairod00@outlook.fr pour avoir l'adresse de payment.
 Une fois le paiement reçus, le mot de passe vous serra envoyé et l'application serra à vous. 🔓  
   
